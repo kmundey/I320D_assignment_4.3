@@ -3,4 +3,5 @@
 3. Add 1 cup of butter
 4. Mix until combined
 5. Bake at 350 degrees for 70 minutes
-
+6. Cool to room temperature
+7. Add frosting and serve
